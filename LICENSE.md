@@ -1,4 +1,4 @@
-# 
+# vip JetBrains IntelliJ IDEA para PC scripts é o melhor JetBrains IntelliJ IDEA para PC scripts com análise de plano de execução e ferramentas de depuração. Seguro, confiável e
 
 
 
